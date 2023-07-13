@@ -1,2 +1,2 @@
-# Dokodemoairdrop.live
+# Dokodemoairdrop.pro
 Dolodemoairdrop
